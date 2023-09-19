@@ -2,6 +2,6 @@
 
 🖥️ Interested in coding 
 
-📚 Currently doing MCA
+📚 Software Engineer
 
 ✨ Always ready for New
